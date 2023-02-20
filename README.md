@@ -14,6 +14,8 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->
+![Aria di Rodi logo](https://ariadirodi.com/wp-content/uploads/2019/08/ariadirodi-logo.avif)
+
 Writing about Aria di Rodi is difficult. 
 How do you describe the surprise of the first time you opened that door? 
 What is it like to find yourself in a small alley and suddenly in a large unexpected garden?
